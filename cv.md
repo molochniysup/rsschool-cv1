@@ -4,3 +4,4 @@
 4. 2016-2020: Belarusian State University. School of Business. Marketing. 2020 - 2021: Belarusian State University. School of Business. Information Systems Software. 
 5. English skills: B2
 6. Hobby: I watch youtube channels every day
+7. Main goal: I want to become a highly qualified specialist
